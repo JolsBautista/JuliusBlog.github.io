@@ -12,8 +12,13 @@ My top 2 colleges are **Ateneo De Manila** and UP or **University Of the Philipp
 
 ### My Socials
 -Facebook: Andrei Bautista
+
 -Instagram: @typicalandrei
+
 -Twitter: @jolswashere
+
 -Spotify: jols
+
 -Steam, CODM: Undead
+
 -VALORANT: Undead#6551
